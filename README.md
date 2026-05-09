@@ -1,0 +1,1 @@
+# generalika-shop-
